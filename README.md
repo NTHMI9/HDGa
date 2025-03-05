@@ -1,9 +1,4 @@
-# Donate cho mình để có động lực làm tiếp nha 🥰🥰🥰
- + [Momo](https://is.gd/MoMo1)
- + [PayPal](https://is.gd/PayPal94)
- + MBBank: 9704229210267774
- + ViettelPay: 0397636194
- + MoMo: 0397636194
+
 # Hỗ trợ Android 7.0 - Android 12+
 # Hỗ trợ iPhone No jailbreak và iPhone jailbreak
 # Bản Mod
